@@ -96,7 +96,7 @@ Herhangi bir sorunuz, öneriniz veya geri bildiriminiz varsa, lütfen benimle il
 
 * E-posta: karullcaner@gmail.com
 * GitHub: https://github.com/CanerKarul
-* LinkedIn: https://www.linkedin.com/in/caner-karul-b0b829209/
+* LinkedIn: https://www.linkedin.com/in/canerkarul/
 
 
 
